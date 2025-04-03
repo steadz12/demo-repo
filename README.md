@@ -1,4 +1,4 @@
-### Hello Smucks! ###
+### Hello Smuck! ###
 
 You smuck! 
 
